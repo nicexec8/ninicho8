@@ -1,2 +1,2 @@
 # ninicho8
-Intagram: @nicholasrfurtado Fã de animes e jogos
+Instagram: @nicholasrfurtado Fã de animes e jogos
